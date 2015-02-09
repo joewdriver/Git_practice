@@ -5,4 +5,6 @@ Joe says hello world
 
 Hi,Joe. I am Ted.
 
-hahaha
+hahaha heehee
+
+Hello Amy,I am waiting U.
