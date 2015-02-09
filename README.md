@@ -7,7 +7,8 @@ Amy says Hi
 
 Hi,Joe. I am Ted.
 
-Hello Amy,I am waiting U.
+hahaha heehee
 
+Hello Amy,I am waiting U.
 
 Let's try this~
